@@ -1,1 +1,1 @@
-https://github.com/EldarKhidriev/ono-tebe-nado-
+https://github.com/EldarKhidriev/ono-tebe-nado
